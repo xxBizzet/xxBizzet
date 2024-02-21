@@ -18,7 +18,7 @@ Hey there! I'm Bizzet, a passionate coder on a journey through the realms of Jav
 
 ## 🔗 Connect with Me
 
-- 📚 Dive into my affiliate marketing wisdom on [Paid Pursuits](https://paidpursuit.wordpress.com). Uncover the secrets of monetizing your digital presence and turning passion into profit.
+- 📚 Dive into my affiliate marketing wisdom on [Paid Pursuit](https://paidpursuit.wordpress.com). Uncover the secrets of monetizing your digital presence and turning passion into profit.
 
 ## 🚧 Under Construction
 
